@@ -5,7 +5,6 @@ ________________________________
 
 [Angelina.78-78@mail.ru]( Angelina.78-78@mail.ru)
 
-+375 29 3067149 
 
 2/2 Udarnaja str.
 
